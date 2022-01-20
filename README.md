@@ -39,43 +39,43 @@ Step 1: Grease the 13x9 pan and preheat the oven. Preheat your oven to 350 F or 
 
 Step 2: Melt the chocolate
 
-     > The next step is to melt 8 ounces of unsweetened chocolate and 1 cup of butter in a medium-sized, heat-safe bowl over a saucepan that has about 1 to 2-inches of water, over low heat.
+     - The next step is to melt 8 ounces of unsweetened chocolate and 1 cup of butter in a medium-sized, heat-safe bowl over a saucepan that has about 1 to 2-inches of water, over low heat.
 
-     > Once combined, remove the chocolate mixture from the stove and set aside to cool.
+     - Once combined, remove the chocolate mixture from the stove and set aside to cool.
 
-     > ![chocbutter](https://th.bing.com/th/id/R.6497a59902a93050fc94cb334276ea4f?rik=BSzpO%2bc%2ba8SdGA&riu=http%3a%2f%2fthebakingwizard.com%2fwp-content%2fuploads%2f2017%2f02%2fchocolatebuttermelting.jpg&ehk=ixBhbZZFfhVlDkudwQfJjXIg9em0PzsuG2Wl250tNnE%3d&risl=&pid=ImgRaw&r=0)
+![chocbutter](chocbutter)
 
 Step 3: Toast the Nuts
 
-     > In a toaster, put 2 1/2 cups of chopped walnuts in a foil-lined baking pan and set it for medium.
+     - In a toaster, put 2 1/2 cups of chopped walnuts in a foil-lined baking pan and set it for medium.
      
-     > Nuts can also be toasted on stovetop or microwave.
+     - Nuts can also be toasted on stovetop or microwave.
      
-     > ![thread](thread.jpg)
+     - ![thread](thread.jpg)
 
 Step 4: Beat the eggs and mix in the flour
      
-     > In a mixing bowl, add 5 eggs, 3 cups of sugar, and 1 tablespoon of vanilla and cream together. Mix for 10 minutes.
+     - In a mixing bowl, add 5 eggs, 3 cups of sugar, and 1 tablespoon of vanilla and cream together. Mix for 10 minutes.
      
-     > Once you have beaten the eggs, in a separate bowl, whisk together 1 1/2 cups flour and 1 teaspoon of salt.
+     - Once you have beaten the eggs, in a separate bowl, whisk together 1 1/2 cups flour and 1 teaspoon of salt.
 
 Step 5: Add Chocolate
 
-     > Between mixing, gradually add the cooled chocolate mixture to the egg mixture
+     - Between mixing, gradually add the cooled chocolate mixture to the egg mixture
 
 Step 6: Add flour and Nuts
 
-     > While mixing, gradually add flour
+     - While mixing, gradually add flour
      
-     > Mix in the nuts
+     - Mix in the nuts
 
 Step 7: Bake the brownies
 
-     > Place mixture into pan for baking.
+     - Place mixture into pan for baking.
      
-     > Bake for 35 to 40 minutes
+     - Bake for 35 to 40 minutes
      
-     > Make sure to not overbake
+     - Make sure to not overbake
      
 Step 8: Completely let the brownies cool on a rack after removing from the oven, and then cut the squares.
    
