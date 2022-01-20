@@ -53,7 +53,7 @@ Step 3: Toast the Nuts
      
      - Nuts can also be toasted on stovetop or microwave.
      
-     - ![thread](thread.jpg)
+![setp3](walnuts.jpg)
 
 Step 4: Beat the eggs and mix in the flour
      
