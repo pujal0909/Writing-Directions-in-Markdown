@@ -43,7 +43,7 @@ Step 2: Melt the chocolate
 
      > Once combined, remove the chocolate mixture from the stove and set aside to cool.
 
-     > ![hoop](hoop.jpg)
+     > ![chocbutter](chocbutter.jpg)
 
 Step 3: Toast the Nuts
 
