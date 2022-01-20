@@ -1,5 +1,7 @@
 # How to Make Brownies
 
+![first](brownies.jpg)
+
 Quick and easy fudgy brownies that can be made for when guests are over or even just to satisfy your cravings. 
 
 _________________________________________________________________________________________________________
@@ -78,5 +80,7 @@ Step 7: Bake the brownies
      - Make sure to not overbake
      
 Step 8: Completely let the brownies cool on a rack after removing from the oven, and then cut the squares.
+
+![step8](brownies2.jpg)
    
 
